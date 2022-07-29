@@ -1,0 +1,1 @@
+# allstecnologia.github.io
